@@ -1,0 +1,3 @@
+- 2023-03-28
+- Mom came home from work at home, there was a quarrel with the authorities. I said transfer to another job[[202303290610 said we are friends]] life is scary. What should I do?
+- Повторяется
